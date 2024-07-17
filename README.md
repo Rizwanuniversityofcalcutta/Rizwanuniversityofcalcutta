@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Rizwanuniversityofcalcutta
 - 👀 My Name is Rizwan Mohsin
 - 🌱 I’m Student
-- 💞️ I’m currently learning in University of Calcutta
+- 💞️ I’m currently learning in SHIBPUR DINOBUNDHOO INSTITUTION affiliated to University of Calcutta
 - 📫 This is My Official Github Account.
 
 
